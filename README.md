@@ -1,0 +1,1 @@
+# isouvenirs-email-assets
